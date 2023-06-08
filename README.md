@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fransie192
 - 👀 I’m interested in learning 
-- 🌱 I’m currently learning coding and programmjng
+- 🌱 I’m currently learning coding and programming
 - 💞️ I’m looking to collaborate on above mentioned 
 - 📫 How to reach me via email nerissafrans2@gmail.com
 
